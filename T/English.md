@@ -2,7 +2,7 @@ English
 
 ==这个题目很有意思==
 
-![image-20220320140828212](https://gitee.com/chenweigen13/photo/raw/master/img/image-20220320140828212.png)
+![image-20220713112125915](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220713112125915.png)
 
 Not all happiness come from working.
 
@@ -34,19 +34,9 @@ Not all happiness come from working.
 
 
 
-
-
-
-
-
-
-
-
  exert detrimental influences on sth  = have/leave a bad influence on
 
 ..    , affecting sth 
-
-
 
 pivotal factor = important 
 
@@ -90,7 +80,7 @@ a crucial difference
 
 afford the expenditure to doing sth 
 
-One's emphasis on the appearance is never too much, especially in job hunting 
+One's emphasis on appearance is never too much, especially in job hunting. 
 
 build confidence
 
@@ -186,7 +176,7 @@ is the temptation offered by the
 
 the majority will succumb directly 
 
-carbohydrates are fattening and grains provide empty calories
+**carbohydrates are fattening and grains provide empty calories**
 
 the number of sth has skyrocketed, along with people's waistlines 
 
@@ -261,6 +251,9 @@ To sum up, considering the advantages of human HR, I believe that HR should not 
 > only one points 
 >
 > 想不出来
+>
+> 1. we can hire some people to take videos and thus we can enjoy the moment 
+> 2. Professional people can take much more beautiful videos 
 
 
 
@@ -340,7 +333,8 @@ Take me as an example. When I was a freshman in the university, the popular fond
 
 ![image-20220406153822900](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220406153822900.png)
 
-
+1. more efficient 
+2. more professional 
 
 
 
@@ -549,7 +543,6 @@ First, mosy elder people do not know other countries' language, which means they
 For instance, last summer vacation I invited my family to the movie theather. There were three movies and one of them is Chinese while others are English. I chose the English action movie "Impossible mission6", which had a good reputation abroad. However, after watching, my grandparents said that they did not know what the movie want to express, because they did not know English and the subtitle ran so fast that they did not see it clearly. So in the next vacation, I chose a Chinese fantasy movie called "Running Earth"among all kinds of movies. Even though the speed of the lines is quick, my grandparents can understand what the story by listening. 
 
 It is the language barrier that makes the domestic movie attractive to the local residents.
-=======
 
 
 

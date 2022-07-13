@@ -283,3 +283,70 @@ their age and physical conditions limited their range of experiences
 
 personal and professional successs 
 
+ exert detrimental influences on sth  = have/leave a bad influence on
+
+..    , affecting sth 
+
+  extra-curricular activities
+
+
+
+
+
+
+
+
+
+
+
+## 712 
+
+![image-20220713133904382](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220713133904382.png)
+
+
+
+in contemporary society 
+
+save money 
+
+Walmart 
+
+
+
+
+
+
+
+The topic pertinent to the issue of the option of the supermarket has become hotly debated in contemporary society, among which is the discussion about whether we should purchase the goods in local stores or large supermarkets. Some propose that we should buy in local stores, citing the reason that we should support the local economy. However, as far as I'm concerned, I strongly hold that we should go to large supermarkets. I would provide several reasons in the following paragraphs. 
+
+First, it is more economical to purchase daily items in large supermarkets. It is known that the price of items in large supermarkets is lower than that in small stores. In the long term, we can save a lot of money by doing so. 
+
+Take me as a compelling example. Last summer vacation and after a basketball game, we were all thirsty and needed some water. There was a local store and each cola sold 3 yuan. We even tried to negotiate the price because we had a lot of people. However, the seller said that the price could not be lower. I paid 30 yuan for ten cola that time and one of my friends suggested me to go to Walmart next time. Thus, before we tried to hold another basketball game, we went to Walmart and found that a dozen of cola just cost 20 yuan. Besides, when I paid the price on my phone, Warmat sent us a coupon, which means we could have another discount! Finally, I spent 12 yuan, which was much more economical. We even bought some chicken using the money saved. Had I not gone to the Walmart, I would not be able to save money. 
+
+Second, it is much easier to deal with quality problems of items in large supermarkets. To be more specific, large international supermarkets usually will set a job position to deal with food quality problems and some gossip. Nevertheless, in most small stores, storekeepers have no awareness of item quality, because they just are responsible for selling. 
+
+Take me as an example. Last weekend I bought beef at a local store. When I went home and opened the packet I found that the beef had a bad smell. I immediately went back to the store and asked the storekeeper to offer me a new one. However, he replied to me impolitely that he could not offer me a new because he could not judge if the bad smell was my trick. I was angry but could do nothing. I swore I would not go that store again. After a while, I bought some bread in a large supermarket and I thought the taste was strange. I asked people in that store. Just 10 minutes later, the manager phoned me back and explained that the bread was on the expiry date, and the taste of the bread was indeed so strange that some costumer could not get used to it. He said the supermarket would be glad to pay back my bread fee if necessary and gave me another coupon. I was surprised by their reply, contrasting with that small store. Since then, I have been a loyal customer of that large supermarket. 
+
+
+
+> Since then, I have been a loyal customer of that large supermarket. 
+
+
+
+
+
+
+
+![image-20220713150529764](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220713150529764.png)
+
+1. You can make more friends with different culture background 
+2. You can have some new mindset. 
+
+
+
+
+
+
+
+
+
