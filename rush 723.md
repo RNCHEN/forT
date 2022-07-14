@@ -344,9 +344,24 @@ Take me as an example. Last weekend I bought beef at a local store. When I went 
 
 
 
+## 713 
+
+![image-20220714104100642](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220714104100642.png)
 
 
 
+1. Most news will sell anxieties and thus you will not feel relax
+2. There are too many news nowadays and staying away from the society will not change your life.
 
+![image-20220714105622849](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220714105622849.png)
 
+1. Because of the COVID-19, the global economy is decreasing, which means governments have no money to handle environment problems
 
+2. Some leaders even do not care about enviroment problems
+
+![image-20220714105829846](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220714105829846.png)
+
+1. Staying focus on achieveling realistic goals, or the sense of failing will hurt you. 
+2. You will be distracted by the imaginary future when handling your assignment and thus you will probably make a mistake. 
+
+![image-20220714110610401](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220714110610401.png)
