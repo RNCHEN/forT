@@ -430,5 +430,51 @@ Take me as an instance. When I was in childhood, a huge earth quake happened. Ma
 
 
 
-1. A humor friend can make you more relax when communicating 
-2. 
+1. An intelligent friend can provide you some solutions when you are in trouble while a humor friend hardly can. 
+2. You can make progress with an intelligent friend. 
+
+
+
+
+
+![image-20220715174709259](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220715174709259.png)
+
+
+
+
+
+1. It is too much expensive for government to afford.
+
+2. The advantage of preschool is limited. 
+
+![image-20220715175605884](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220715175605884.png)
+
+
+
+Students should choose their major by themselves 
+
+1. When people are interested in one thing, they can study well. 
+2. Students sometimes can make better decisions than their parents 
+
+![image-20220715175822916](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220715175822916.png)
+
+1. You can communicate better. To be more specific, the language is the biggest obstacle for people who study abroad. 
+
+2. You can live harmony as you have the same cultural background. Specificly,  
+
+   
+
+![image-20220715180023629](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220715180023629.png)
+
+
+
+1. 
+
+
+
+
+
+
+
+
+
