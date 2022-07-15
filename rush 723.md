@@ -365,3 +365,70 @@ Take me as an example. Last weekend I bought beef at a local store. When I went 
 2. You will be distracted by the imaginary future when handling your assignment and thus you will probably make a mistake. 
 
 ![image-20220714110610401](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220714110610401.png)
+
+1. A polite person can earn much more opportunities than those who are not.
+
+2. A polite person can handle problems more efficiently
+
+
+
+![image-20220715111912040](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220715111912040.png)
+
+1. They have received much information a day, and thus a proper rest should be allowed. 
+2. Children need to develp their hobbies, which usually costs time. 
+
+
+
+![image-20220715112335543](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220715112335543.png)
+
+1. They are afraid of bad consequences. 
+2. They are busy now in this hectic society. 
+
+==加星吧，确实不太了解==
+
+![image-20220715112425839](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220715112425839.png)
+
+
+
+![image-20220715125257860](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220715125257860.png)
+
+1. You can not be a leader every time
+2. A leader also need to communicate with others 
+
+
+
+![image-20220715125922614](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220715125922614.png)
+
+
+
+写这个吧
+
+1. Only the staff in organization can locate the source reasonablely. 
+2. The organziation knows what the people need. 
+
+
+
+The pertinent to the issue of utilization of donation has become hotly debated in contemporary society, among which is the discussion about whether people should choose how their donations will be used. Some individual propose people can decide that, citing the reason that people can thus monitor the charitable organizations. However, as far as I'm concerned, I stongly hold that we should leave it to organzitation.  I would provide several reasons in the following paragraphs. 
+
+First, only the organization can locate the source reasonablely. To be more specific, the organization can balance the amount of all items such as clothes or foods. The public can hardly know if the number of clothes meets the requirement. 
+
+Take me as a compelling example. Last winter vacation, there was a huge flood went through our neighbor city, which made many damages and loss. The water destoryed everything, and people lost their homes and cars, as well as their money. The red cross called the public to donate their money to rebuild the city. However, I thought it seemed that people there needed clothes to keep warm. So I connected the local relative department privately and wanted to send some old clothes. Nevertheless, the staff replied me that there were too many clothers donated that can be send to the residents two per person. I was astonished and I came to realize that what I should do was donate money to the red cross. After the rebuild, I found my money was used for purchasing medical items according to the announcement released by the organiztion. It was the red cross that can locate resources more reasonablely. 
+
+Second, only the organization knows what those people in need really need. It can be not denied that the pubilc know nothing about how to save people while the charitable orgnization knows. 
+
+Take me as an instance. When I was in childhood, a huge earth quake happened. Many people died and many lost connections. We originally donated some books as they were necessary items for students there. They could read some books and continued their studied. However, the reality was far away from our imagination. In the next month we saw news on TV, no one read there. Every one was trying to save people, cleared out the path to let the cars came in. They were all in a moody emotion which means reading is impossible. What they needed is food and water, instead of something for spirits. Then we noticed that all donation items were come from charitable orgnization, without which  
+
+写差了    ==等会再来看==
+
+
+
+这个也想不到了 ；； 难过
+
+先听力去
+
+![image-20220715140255672](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220715140255672.png)
+
+
+
+1. A humor friend can make you more relax when communicating 
+2. 
