@@ -466,15 +466,72 @@ Students should choose their major by themselves
 
 ![image-20220715180023629](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220715180023629.png)
 
+The pertinent to the issue of the cost on pets has become hotly debated in contemporary society, among which is the discussion about if people spend too much money on their pets nowadays. Some people propose that they have not spent too much, inciting the reason that people earn much more than before. However, as far as I'm concerned, I strongly hold the opinion that people have alreay spent too much. The several reasons will be provided as follows. 
+
+> 问题在没有把语言写漂亮，没有提到although there are better uses for their money
+
+1. A good pets will have a high price. It can be not denied that pets nowadays cost much, especially when you want to have a health and smart one. Pets stores or other official ways always sell pets in a high price. 
+
+1. ![image-20220718112236123](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220718112236123.png)
+
+   Take my friend Tom as a compelling example. Last summer vacation, he wanted a small cat after visiting my house. "I want a cute and lovely cat", he said. He then went to a pets store, which was known for selling cute and health pets. At first he was attrated by a orange cat, which had a sweet smile and cute voice. However, he noticed that the price was 2 thousand yuan. Before he went there, he thought that  a pet would cost 5 hundred yuan at most. He gave up that cat and tried to search for another. Then he found a gray and tiny cat with big blue eyes, but that one sold 3 thousand, even more expensive than the previous one. At last, he spent 2 thousand to got the original orange one. 
+
+   Had it not sold too expensive, people would not spend too much on purchasing one. 
+
+1. Nowadays pets also will cost many in daily life. To be more specific, pets are easy to be affected by virus so that health care like vaccination masters. In addition, their daily foods and entertainment toys are also in need. All of them need to pay money. 
+
+   Take me as an example. When I was a senior high school student, I had a dog named  Tony. Every week I needed to take it to the pets store to have a shower to keep it in health, which usually spent me 100 yuan once. Also, a pet hair cut cost 150 yuan once. Every 3 month it need to be vaccined in the assigned official hospital. Besides, it would bite its entertainment tools, which means I needed to update its toys almost every month. The price could be acceptable at first. However, as time went on, I could not afford that as I was still a student. I had spent almost one thousand yuan on Tony each month while I had spent 800 yuan eating and entertaining per month. Finally I had to send it to my uncle. 
+
+   It was the high price of pets daily requirement that made me cost too much. 
+
+> this reality is evident to people all over the world and so people feel quite a lot of urgency doing
+>
+> substantial income
+
+![image-20220718112507460](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220718112507460.png)
+
+![image-20220718112531034](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220718112531034.png)
 
 
-1. 
+
+==First, parks help people to relax and find serenity, two things which are both in short supply in today's hectic world==
+
+Moreover, they often deal with long commutes, traffic jams and crowded sidewwalks
+
+stress was alleviated
 
 
 
+alleviate stress
+
+acquire knew knowledge
+
+but today museums contain interactive and stimulating hands-on displays.
 
 
 
+>  I was laid off from my job = fired
 
 
 
+I often look back on that experience with fondness;
+
+obesity  
+
+sb finally was diagnosed with **diabetes**
+
+suffer serious consequences
+
+I often skipped meals because I was extremely busy completing my academic work
+
+I started to suffer from fatigue and lethargy 
+
+![image-20220718140602084](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220718140602084.png)
+
+pass their responsibilities off to others 
+
+==felt overwhelmed by the number of assignments that we had to complete==
+
+maintain a professional demeanor 
+
+everyone needs to spend time to unwind in nature
