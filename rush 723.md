@@ -528,7 +528,7 @@ I started to suffer from fatigue and lethargy
 
 ![image-20220718140602084](https://raw.githubusercontent.com/RNCHEN/photo-326/master/blogImg/image-20220718140602084.png)
 
-pass their responsibilities off to others 
+pass their responsibilities off to others  
 
 ==felt overwhelmed by the number of assignments that we had to complete==
 
